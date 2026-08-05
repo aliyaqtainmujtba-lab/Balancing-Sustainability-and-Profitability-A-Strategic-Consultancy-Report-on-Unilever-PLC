@@ -1,0 +1,2 @@
+# Balancing-Sustainability-and-Profitability-A-Strategic-Consultancy-Report-on-Unilever-PLC
+Strategic consultancy project analyzing Unilever's sustainability and profitability challenges. The report evaluates financial performance, stakeholder impact, and competitive strategy using management frameworks, and provides data-driven recommendations to balance environmental responsibility with long-term business growth
